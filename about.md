@@ -10,5 +10,5 @@ Tengo experiencia en el área de Quality Assurance, participando en proyectos de
 
 ### Contacto
 
-[mcdfelipea@gmail.com](mailto:mcdfelipea@gmail.com)
+[mcdfelipea@gmail.com](mailto:mcdfelipea@gmail.com)||
 [LinkedIn](https://www.linkedin.com/in/rubbishbinqa/)
